@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding languages and machine learning 
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on nothing as of now (will update later)
-- 📫 How to reach me Discord: eternity0038, 
+- 📫 How to reach me Discord: z_4_zen. 
 - ⚡ Fun fact: 
 
 <!---
